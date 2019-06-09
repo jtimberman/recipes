@@ -5,7 +5,8 @@ baking sheets
 1 mixing bowl
 
 # Ingredients
-* 1 cups flour
+* 1 cups GF flour blend
+* 1/4 tsp konjac root powder
 * 2/3 cups rolled oats
 * 1/2 teaspoon baking soda
 * 1/2 tsp cinnamon
