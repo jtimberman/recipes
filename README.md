@@ -1,6 +1,6 @@
 # About
 
-Recipes that my wife and created, or wanted to save from other places.
+Recipes that my wife and I created, or wanted to save from other places.
 
 ## License
 
