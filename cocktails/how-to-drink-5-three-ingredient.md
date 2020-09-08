@@ -1,3 +1,9 @@
+This list is copied from the How to Drink Youtube channel, from this video's description:
+
+https://www.youtube.com/watch?v=VOyg2LzNiOA
+
+All credit goes to Greg for compiling the list. Fortuantely these are all common/typical cocktail recipes.
+
 ## Margarita
 * 2 oz. -or- 60 ml. Reposado Tequila
 * 1 oz. -or- 30 ml. Lime juice
