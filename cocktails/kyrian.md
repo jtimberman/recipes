@@ -1,5 +1,7 @@
 # Timely Justice
 
+*Inspired by my friend, Pie! (hers is much prettier)*
+
 * 1 part gin
 * 1 part blue curacao
 * 1 part Hpnotiq
