@@ -16,6 +16,6 @@ Super simple pork tenderloin recipe.
 5. Marinate in fridge for at least 2 hours
 6. Remove tenderloin from fridge ~30 minutes before cooking
 7. Preheat grill to ~400ºF
-8. Grill tenderloin for 6 minutes each side
+8. Grill tenderloin for 6-10 minutes each side to taste
 9. Let it rest ~5 minutes before serving
 
