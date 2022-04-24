@@ -19,3 +19,4 @@ Super simple pork tenderloin recipe.
 8. Grill tenderloin for 6-10 minutes each side to taste
 9. Let it rest ~5 minutes before serving
 
+Optionally for less rare pork, slice after resting, and sear on high heat for ~30 seconds.
