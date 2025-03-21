@@ -2,18 +2,18 @@ Gluten free. Easily dairy free (skip the cheese).
 
 Serves four
 
-1 lb chicken
-1 poblano pepper
-1 Anaheim pepper 
-1 cup dry black beans
-1 cup frozen corn
-Half cup cilantro
-Olive oil
-Corn tortillas
-Chipotle seasoning (bought at an Oil and Vinegar store near me)
-Cumin, chili powder, garlic, black pepper, and paprika - amounts to taste
+- 1 lb chicken
+- 1 poblano pepper
+- 1 Anaheim pepper 
+- 1 cup dry black beans
+- 1 cup frozen corn
+- Half cup cilantro
+- Olive oil
+- Corn tortillas
+- Chipotle seasoning (bought at an Oil and Vinegar store near me)
+- Cumin, chili powder, garlic, black pepper, and paprika - amounts to taste
 
-Required equipment: Instant pot. If you don’t have one get one. Or adapt the recipe as required. 
+Required equipment: Instant pot. If you don’t have one get one. Or adapt the recipe as required. I don't know what's required, I have an instant pot.
 
 ## Beans
 
